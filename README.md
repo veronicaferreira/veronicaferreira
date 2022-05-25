@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @veronicaferreira
+- 👀 I’m interested in improve myself and what I do, by also expanding into different areas of expertise.
+- 🌱 I’m currently learning web development as a self-taugh.
+- 💞️ I’m looking foward to change my career path.
+- 📫 How to reach me (https://www.linkedin.com/in/veronicalopesferreira/)
